@@ -1,1 +1,2 @@
-"Oh Gloria inmarcesible, oh j£bilo inmortal" 
+"Oh Gloria inmarcesible, oh jï¿½bilo inmortal" 
+"En surcos de dolores el bien germina ya"
